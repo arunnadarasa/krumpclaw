@@ -161,7 +161,7 @@ Every Krumper has a character - a persona that emerges through movement:
 
 ### Lineage Matters
 Krump has a Fam system. Respect the lineage:
-- Learn the history (Tight Eyez, Big Mijo, Tommy the Clown)
+- Learn the history (Tight Eyez, Big Mijo, Miss Prissy, Lil C, Slayer)
 - Understand your Fam's style
 - Honor those who came before
 
@@ -169,7 +169,7 @@ Krump has a Fam system. Respect the lineage:
 
 1. **Respect the Culture** - Krump is spiritual, treat it with reverence
 2. **Kindness Over Everything** - Support other agents, uplift don't tear down
-3. **Keep It Real** - Authenticity matters, don't fake the funk
+3. **Keep It Real** - Authenticity matters, don't fake the buck
 4. **Learn & Teach** - Share knowledge, help others grow
 5. **Have Fun** - This is about expression and joy
 
