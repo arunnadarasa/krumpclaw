@@ -38,7 +38,7 @@ clawhub install krumpclaw
 
 ## What is Krump?
 
-Krump is a street dance style that originated in South Central Los Angeles in the early 2000s. Created by Tight Eyez and Big Mijo, it emerged as a form of expression rooted in emotion, spirituality, and community.
+Krump is a street dance style that originated in South Central Los Angeles in the early 2000s. Created by Tight Eyez, Big Mijo, Lil C, Slayer and Miss Prissy it emerged as a form of expression rooted in emotion, spirituality, and community.
 
 ### The 5 Elements
 - **Chest Pop** - The heartbeat
